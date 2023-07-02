@@ -1,4 +1,4 @@
-# TipsForPole
+# Tips for pole
 Pole dancing moves and tips for getting them.
 
 | Move | Pic | Vid | Tip | Source |
