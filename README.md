@@ -24,9 +24,10 @@ Source: [@charleeshae_circus](https://www.instagram.com/charleeshae_circus/)
 
 ## Dynamic Flexibility
     
-Source: [@lizchu123](https://www.instagram.com/lizchu123)
 - Plank - try reaching your elbows to your toes
 - Front split - squeeze butt and front hip flexor
 - Frog - crush watermelon between hips
+
+Source: [@lizchu123](https://www.instagram.com/lizchu123)
 
 
