@@ -6,7 +6,7 @@ Pole dancing moves and tips for getting them.
 | Move | Pic | Vid | Tip | Source |
 | - | - | - | - | - | 
 | Cupid  |  |  |- Squeeze your butt to move hips forward <br/>- Imagine you are crushing a watermelon between your thighs | [Reddit](https://www.reddit.com/r/poledancing/comments/142zwd4/my_cupid_sorta_how_do_i_hold_this/jn83beu/?context=3) |
-| Invert |  |  |- Rip the pole apart | [@marlofisken](https://www.instagram.com/reel/CoJMv47DhvD/) | 
+| Invert |  |  |- Rip the pole apart <br/>- Bump your butt into the ceiling| [@marlofisken](https://www.instagram.com/reel/CoJMv47DhvD/) [@nokolalalalalala](https://instagram.com/nokolalalalalala)| 
 | Around the world |  |  |- Grab inside hand, step inside foot next to pole <br /> - It's a transfer of weight  | Yelena | 
 
 ### Hamster wheel
