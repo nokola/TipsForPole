@@ -16,7 +16,3 @@ Pole dancing moves and tips for getting them.
 | Straight legs 😍 |  |  |- point ankles<br /> - shove knees to back wall<br /> - warm up with pointed legs!<br /> <br /> Exercises:<br />   - Ankle roll<br />   - Point, pedal, flex<br />  - L-lift<br />   - Leg lifts|nokola|
 |add your own
 
-
-
-## 
-
