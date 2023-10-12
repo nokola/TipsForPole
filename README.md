@@ -26,6 +26,23 @@ Pole dancing moves and tips for getting them.
 
 Source: [charleeshae_circus](https://www.instagram.com/charleeshae_circus/)
 
+## Climbing
+- One foot in front one behind the pole
+- Squeeze between knees
+- Push from the feet up
+
+nokola
+
+- Butt out, kick pole.
+- Lower elbow bracket. 
+- Look out to the people (rather than down)
+
+[marlofisken-2](https://www.youtube.com/watch?v=23b0VqNNINc)
+
+- Move contact point higher on shin away from tendons
+
+[marlofisken-1](https://www.youtube.com/watch?v=3r1W02p_cWo)
+
 ## Dynamic Flexibility
     
 - Plank - try reaching your elbows to your toes
@@ -34,4 +51,13 @@ Source: [charleeshae_circus](https://www.instagram.com/charleeshae_circus/)
 
 Source: [lizchu123](https://www.instagram.com/lizchu123)
 
+## Straight legs 😍
+- point ankles
+- shove knees to back wall
+- warm up with pointed legs!
+- Exercises:
+  - Ankle roll
+  - Point, pedal, flex
+  - L-lift
+  - Leg lifts
 
