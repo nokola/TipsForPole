@@ -15,6 +15,5 @@ Pole dancing moves and tips for getting them.
 | Dynamic Flexibility ||| - Plank - try reaching your elbows to your toes<br />- Front split - squeeze butt and front hip flexor<br />- Plank - try reaching your elbows to your toe<br />- Frog - crush watermelon between hips  |[lizchu123](https://www.instagram.com/lizchu123) | 
 | Straight legs 😍 |  |  |- point ankles<br /> - shove knees to back wall<br /> - warm up with pointed legs!<br /> <br /> Exercises:<br />   - Ankle roll<br />   - Point, pedal, flex<br />  - L-lift<br />   - Leg lifts|nokola|
 | Ballerina |  |  |- One handed fly angel spin |nokola|
-
-add your own
+| add your own
 
